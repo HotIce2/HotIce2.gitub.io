@@ -1,1 +1,1 @@
-# HotIce2.gitub.io my class website
+# HotIce2.gitub.io
